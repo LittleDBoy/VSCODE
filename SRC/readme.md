@@ -7,4 +7,4 @@ To crush it.
 The pinnacle of the Jujutsu world and the Zen’in family.
 I wanted this for self-affirmation.
 And I deviated from my true self.
-At that point, I had already lost.
+At that point, I had already lost....
